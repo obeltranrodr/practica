@@ -1,1 +1,1 @@
-practica modificada
+practica modificada exercici 6!!
